@@ -1,4 +1,4 @@
-# JohnnyVanNguyen
+# Johnny Van Nguyen
 
 ## Welcome to My Personal Page!
 
